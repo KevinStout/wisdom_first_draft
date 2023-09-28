@@ -463,3 +463,5 @@
 “Calm mind brings inner strength and self-confidence, so that’s very important for good health.” - Dalai Lama ~
 
 “To understand everything is to forgive everything.” - Gautama Suddhartha ~
+
+“There is no need for temples; no need for complicated philosophy. Our own brain, out own heart is our temple; the philosophy is kindness.” - Dalai Lama ~
