@@ -465,3 +465,5 @@
 “To understand everything is to forgive everything.” - Gautama Suddhartha ~
 
 “There is no need for temples; no need for complicated philosophy. Our own brain, out own heart is our temple; the philosophy is kindness.” - Dalai Lama ~
+
+“Knowledge can only be got in one way, the way of experience; there is no other way to know.” - Swami Vivekananda ~
