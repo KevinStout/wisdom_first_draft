@@ -469,3 +469,5 @@
 “Knowledge can only be got in one way, the way of experience; there is no other way to know.” - Swami Vivekananda ~
 
 “The voice of a poor man does not carry very far.” Laotian Proverb ~
+
+“Once you stop clinging and let things be, you’ll be free, even of birth and death. You’ll transform everything.” - Budhidharma ~
